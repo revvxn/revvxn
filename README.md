@@ -18,7 +18,7 @@ i like drawing , playing games , listening to music and more like that !!
 👑 - i want to be friends , i probably would be too shy to int + i LOVE your skin
 
 
-fandoms im in ! ) genshin impact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , funky friday , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , umamusume , phighting and more i cant remember
+fandoms im in ! ) genshin impact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , friday night funkin , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , umamusume , phighting and more i cant remember
 
 
 ships i like ! / !! PLEASE int if u like any of these ships sob
@@ -32,7 +32,7 @@ jangar , lawple , melolumi ( brawl stars ) .
 
 <img width="1215" height="1080" alt="1000038573" src="https://github.com/user-attachments/assets/88d30969-8a54-45a3-a2df-51d3919e2cc4" />
 
-fnf fandom pls int funky friday int pls fandom funky frida
+fnf fandom pls int funky friday int pls fandom funky friday friday night funkin int pls
 <!--
 **revvxn/revvxn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
