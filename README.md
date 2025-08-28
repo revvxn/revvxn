@@ -13,6 +13,9 @@ mᥙᥣ𝗍іsһі⍴⍴ᥱr .. sһᥱ/һᥱr  ꉂꉂ(ᵔᗜᵔ*)            ! �
 i usually dont interract first , pls whisper to int , im usually offtab so i might not see your messages !
 i also would like to chat , if i dont type i probably would be shy (id like to talk !!!)
 
+ + discord :: ._revvxn ✧
+
+
 !! 𝙥𝙡𝙚𝙖𝙨𝙚 do not take my jokes seriously, i make bullying jokes a lot ,, lmk if uncomfy
 
 ![1000039059](https://github.com/user-attachments/assets/fdafbeee-e9ef-4759-b24d-558322676666)
@@ -23,11 +26,11 @@ i like drawing , playing games , listening to music and more like that !!*   ੈ
 👑 - i want to be friends , i probably would be too shy to int + i LOVE your skin 
 
 
-𝙛𝙖𝙣𝙙𝙤𝙢𝙨 𝙞𝙢 𝙞𝙣 ,, genshin ipact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , friday night funkin , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , umamusume , phighting and more i cant remember
+𝙛𝙖𝙣𝙙𝙤𝙢𝙨 𝙞𝙢 𝙞𝙣 ,, genshin ipact , one punch man , one piece , project sekai , blue lock , mob psycho 100 , brawl stars , ranfren , forsaken , dandys world , cookie run kingdom , bfdi , friday night funkin , squid game , bungou stray dogs , ena : dream bbq , haikyuu , demon slayer , komi cant communicate , lacey games , doki doki , skullgirls , pokemon , five night at freddys , minecraft , young sheldon , jujutsu kaisen , chainsaw man , honkai star rail , pokemon , alien stage , deltarune , dead plate , umamusume , phighting and more i cant remember
 
 
 𝙨𝙝𝙞𝙥𝙨 𝙄 𝙡𝙞𝙠𝙚.. (⁎˃ᴗ˂⁎)
-eternalberry , purelily , tabiori , funnyberry , cleanscreen , buildermon , jangar , lawple , melolumi .
+eternalberry , purelily , tabiori (karasu x hiori ) , funnyberry ( sprout x looey ), cleanscreen ( vee x tisha ), buildermon (builderman x telamon ) , jangar ( janet x edgar ), lawple ( lawrie x meeple ), melolumi (melodie x lumi ), rocent (rody x vincent )
 <!--
 **revvxn/revvxn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
