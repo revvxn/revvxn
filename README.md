@@ -4,6 +4,9 @@ mᥙᥣ𝗍іsһі⍴⍴ᥱr .. sһᥱ/һᥱr  ꉂꉂ(ᵔᗜᵔ*)            ! �
 ᥴ᥆᥎ᥱr / ᥴ᥆⍴ᥡ = ᑲᥣ᥆ᥴk.          ˃͈◡˂͈ ⍴ᥣᥱᥲsᥱ ძ᥆ᥒ'𝗍 𝗍ᥲkᥱ mᥡ ȷ᥆kᥱs sᥱrі᥆ᥙsᥣᥡ..      ᥲᥣᥕᥲᥡs ᥕ2і
 
 
++draw on strawpage !! + i remade it go check it out..😛
+
+
 ✧ 𝘿𝙉𝙄 , im a minor so 17+ ( im under 16 ), pr0shippers ( guest x bluudud , c00l7n7 and more ) , roleplayers and hazbin hotel , helluva boss , nu carnival , waterside night and fandoms like that .
 
 
