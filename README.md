@@ -1,8 +1,3 @@
-<img width="736" height="736" alt="1000039184" src="https://github.com/user-attachments/assets/bbc7575f-228f-457b-8189-e4eedf138db9" />
+<img width="1777" height="1694" alt="1000039271" src="https://github.com/user-attachments/assets/d048bfc4-3551-45ea-bea4-3f50ef2442bb" />
 
-
-
-
-
-
-✧ 𝙘𝙝𝙚𝙘𝙠 𝙨𝙩𝙧𝙖𝙬 ! 
+hih
