@@ -1,17 +1,11 @@
-<img width="640" height="53" alt="1000039631" src="https://github.com/user-attachments/assets/61ae5475-c8cf-42fb-9603-560a2b75028c" />
-<img width="1745" height="1251" alt="1000039783" src="https://github.com/user-attachments/assets/8bd76db7-50c9-42d7-a5c6-33268b933286" />
+<img width="3464" height="3208" alt="1000041665" src="https://github.com/user-attachments/assets/de96fb84-2905-4361-a55e-564aace87784" />
 
 
 
 
 
+× You can call me rev , reeve . . idm . ! ![1000039772](https://github.com/user-attachments/assets/bdd41ebd-6c96-4298-bafe-d5c039cdd66f)
 
+She / Her :: multishipper. ![1000041663](https://github.com/user-attachments/assets/abb2edaa-906c-4e34-a240-4c96d40425ac) Please do not copy my skins     .,     until gifted :3 
 
-![1000039613](https://github.com/user-attachments/assets/179bfcac-15bd-4d17-945a-e3efa16eea98)
-' You can call me rev , reeve . . idm . ! ![1000039772](https://github.com/user-attachments/assets/bdd41ebd-6c96-4298-bafe-d5c039cdd66f)
-
-She / Her :: multishipper. ![1000039773](https://github.com/user-attachments/assets/e16b784e-5104-45cf-b7d8-6f74bd28b960) .
-Please do not copy my skins     .,     until 🎁 ' d :3 
-
-.' c x h , int until i have dniuf in my name <img width="20" height="20" alt="1000039774" src="https://github.com/user-attachments/assets/8b592d22-b730-4c8b-ae56-37a0171d8f0e" />![1000039771](https://github.com/user-attachments/assets/4a9738e5-557b-4acd-9d15-b8882ab0e107)
-
+.' c x h , int until i have dniuf in my name ![1000041662](https://github.com/user-attachments/assets/ac9e82f3-4578-4334-939d-5edc5b94d4fb)
