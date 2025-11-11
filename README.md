@@ -2,7 +2,7 @@
 
 
 
-' You can call me rev , soren . . idm lol !
+' You can call me rev , soren . . idm lol
 
 ✦ She - Her :: multishipper. 
 
