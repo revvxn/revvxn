@@ -14,6 +14,7 @@
 
 ' Do you have any business with me , Executive Manager ? '
 
+im not really active on pt these days so sorry aboit that im busy these days aa
 
 remaking!!!!  ' You can call me rev , soren . . idm lol
 
