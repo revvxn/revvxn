@@ -30,7 +30,7 @@ Please do not copy my skins     .,     until gifted 。
 .' c x h , int until i have dniuf in my name ok? ok
 
 
-i like limbus company ,, gregcliff and ryoutis ceo yayhu - multifandom!!
+i like limbus company ,, HEATHSANG ceo - multifandom!!
 
 
 
