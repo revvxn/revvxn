@@ -1,4 +1,3 @@
-<img width="1280" height="140" alt="1000043161" src="https://github.com/user-attachments/assets/d6c76817-5da3-4716-b8f1-f83301a5562e" />
 
 
 
@@ -30,7 +29,7 @@ Please do not copy my skins     .,     until gifted 。
 .' c x h , int until i have dniuf in my name ok? ok
 
 
-i like limbus company ,, HEATHSANG ceo - multifandom!!
+i like limbus company heathsang and rodtis yuri oh my fod - multifandom
 
 
 
@@ -41,4 +40,6 @@ im 13 ,, feel free to block
 forsaken and dandys world iwec
 
 
-<img width="99" height="56" alt="1000043164" src="https://github.com/user-attachments/assets/6da236b1-7bcb-4265-a36c-3d210bc09efb" /> ![1000043163](https://github.com/user-attachments/assets/6aab49c3-b4e8-4ac5-86b7-c5b31c050ff6)
+
+<img width="99" height="56" alt="1000044554" src="https://github.com/user-attachments/assets/9933004e-131c-49c6-9b7e-6dd8f63798c1" />
+<img width="99" height="56" alt="1000044553" src="https://github.com/user-attachments/assets/4d07bdf9-e634-4454-939b-d3dd4d1fc8d4" />
