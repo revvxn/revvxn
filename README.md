@@ -13,9 +13,9 @@
 
 ' Do you have any business with me , Executive Manager ? '
 
-im not really active on pt these days so sorry aboit that im busy these days aa
+im not really active on pt these days so sorry aboit that im busy these days
 
-remaking!!!!  ' You can call me rev , soren . . idm lol
+ ' You can call me rev or soren idm
 
 
 
@@ -26,7 +26,7 @@ Please do not copy my skins     .,     until gifted 。
 
 
 
-.' c x h , int until i have dniuf in my name ok? ok
+.' c x h , int until i have dniuf in my name 
 
 
 i like limbus company heathsang and rodtis yuri oh my fod - multifandom
