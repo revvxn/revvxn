@@ -11,27 +11,23 @@
 
 
 
-' Do you have any business with me , Executive Manager ? '
+ Do you have any business with me, Executive Manager ?
 
 im not really active on pt these days so sorry aboit that im busy these days
 
- ' You can call me rev or soren idm
+ you can call me rev or soren idm
 
 
 
-✦ She - Her :: multishipper. 
+she/her multishipper
+
+please do not copy my skins until gifted 
 
 
-Please do not copy my skins     .,     until gifted 。
 
+ch/int until i have dni in my name
 
-
-.' c x h , int until i have dniuf in my name 
-
-
-i like limbus company heathsang and rodtis yuri oh my fod - multifandom
-
-
+i like project moon and drawind - multifandom
 
 im 13 ,, feel free to block
 
