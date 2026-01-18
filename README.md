@@ -1,16 +1,4 @@
 
-
-
-
-![1000043156](https://github.com/user-attachments/assets/441a581f-ad16-4c99-978e-dec10cda0b10)
-
-
-
-
-<img width="768" height="26" alt="1000043160" src="https://github.com/user-attachments/assets/f8b29fb7-820d-4fdb-a903-1595eb5202a1" />
-
-
-
  Do you have any business with me, Executive Manager ?
 
 im not really active on pt these days so sorry aboit that im busy these days you can call me rev or soren idm
