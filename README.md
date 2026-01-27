@@ -24,7 +24,6 @@ you can call me rev or soren idm ![1000046210](https://github.com/user-attachmen
 
 
 ch/int until i have dni in my name
-
 i like project moon and drawing
 
 im 13 ,, feel free to block ! 02/21
