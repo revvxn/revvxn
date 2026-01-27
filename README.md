@@ -19,19 +19,15 @@ you can call me rev or soren idm ![1000046210](https://github.com/user-attachmen
            
            
  please do not copy my skins until gifted 
-
-
-
-
 ch/int until i have dni in my name
-i like project moon and drawing
+
+
+<img width="2975" height="2003" alt="1000046208" src="https://github.com/user-attachments/assets/29b4296f-2cb4-44e8-90de-aac894ab5272" />
+ i like project moon and drawing
 
 im 13 ,, feel free to block ! 02/21
 
 forsaken iwecuf .. more info on strawpage
-
-
-<img width="2975" height="2003" alt="1000046208" src="https://github.com/user-attachments/assets/29b4296f-2cb4-44e8-90de-aac894ab5272" />
 
 <img width="99" height="56" alt="1000046188" src="https://github.com/user-attachments/assets/f8de37c8-1f27-469f-8a9b-21e6b42b71e4" />
 <img width="99" height="56" alt="1000046187" src="https://github.com/user-attachments/assets/b2b43f1d-d188-4c8d-8924-7e0aa0ca7580" />
