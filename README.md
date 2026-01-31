@@ -8,7 +8,7 @@ you can call me rev or soren idm she/her multishipper + multifandom
 ch/int until i have dni in my name
 
 
-<img width="2975" height="2003" alt="1000046208" src="https://github.com/user-attachments/assets/29b4296f-2cb4-44e8-90de-aac894ab5272" />
+
  i like project moon and drawing
 
 im 13 ,, feel free to block ! 02/21
