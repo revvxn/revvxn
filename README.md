@@ -1,23 +1,9 @@
-
-
-
-
-<img width="3464" height="3268" alt="1000046245" src="https://github.com/user-attachments/assets/68a50edc-438d-46ea-9528-dfb627b66c5e" />
-
-
-
+<img width="2975" height="2003" alt="1000046208" src="https://github.com/user-attachments/assets/29b4296f-2cb4-44e8-90de-aac894ab5272" />
 
 ,im not really active on pt these days so sorry aboutt that im busy these days 
 
-you can call me rev or soren idm ![1000046210](https://github.com/user-attachments/assets/7a78e80b-dd49-4e8d-9873-d2a03b409bfa)
-
-
-
-![1000046211](https://github.com/user-attachments/assets/7e7ac28d-0643-41df-87ec-ebca5dc38efc)
- she/her multishipper + multifandom
-
-           
-           
+you can call me rev or soren idm she/her multishipper + multifandom
+          
  please do not copy my skins until gifted 
 ch/int until i have dni in my name
 
