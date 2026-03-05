@@ -15,11 +15,7 @@ im 14 ,, feel free to block ! 02/21
 
 forsaken iwecuf .. more info on strawpage
 
-<img width="99" height="56" alt="1000046188" src="https://github.com/user-attachments/assets/f8de37c8-1f27-469f-8a9b-21e6b42b71e4" />
-<img width="99" height="56" alt="1000046187" src="https://github.com/user-attachments/assets/b2b43f1d-d188-4c8d-8924-7e0aa0ca7580" />
-<img width="99" height="56" alt="1000046193" src="https://github.com/user-attachments/assets/cb658a82-d047-4ba8-a347-5999566baa7e" />
-<img width="99" height="56" alt="1000046194" src="https://github.com/user-attachments/assets/c6d07ea7-a10a-4373-98c7-53c3281d5a05" />
-<img width="99" height="56" alt="1000046186" src="https://github.com/user-attachments/assets/7d1fc135-01b5-4a8f-9fc2-0333cdce7672" />
-<img width="99" height="56" alt="1000046195" src="https://github.com/user-attachments/assets/ae7cc517-f7ea-4131-8d42-a6ed590418fe" />
+my limbus account here i do accept requests
+![1000048040](https://github.com/user-attachments/assets/2e18b06b-115d-488e-a6b1-603039ade2c2)
 
-
+![1000048043](https://github.com/user-attachments/assets/0d3acab0-48cf-4082-a66c-941d3a07dd4d)
