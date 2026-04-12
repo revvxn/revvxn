@@ -9,13 +9,13 @@ ch/int until i have dni in my name
 
 
 
- i like drawing alot /also rarepairs ok........(vespa x matthias, heathsang, ishmael x xichun and more sweats)
-
+ i like drawing alot ummmm
 im 14 ,, feel free to block ! 02/21
 
 forsaken iwecuf .. more on strawpage yayayayay
 
-my limbus account here i do accept requests
+my limbus account here i do accept requests/
+all level 60 uptie 4
 
 
 ![1000049540](https://github.com/user-attachments/assets/26276b69-1f85-4e4e-9cb6-f70fcbb18a92)
@@ -24,6 +24,4 @@ my limbus account here i do accept requests
 ![1000049541](https://github.com/user-attachments/assets/e7659105-3fe9-4f73-83ed-26baa12e0639)
 
 
-![1000049533](https://github.com/user-attachments/assets/90c1ae18-4b7b-49af-a9d5-107dd6463ea8)
-
-so stinky
+![1000049986](https://github.com/user-attachments/assets/1486420d-a284-4982-aba8-e52ddb1a2335)
