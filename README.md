@@ -24,4 +24,5 @@ all level 60 uptie 4
 ![1000049541](https://github.com/user-attachments/assets/e7659105-3fe9-4f73-83ed-26baa12e0639)
 
 
-![1000049986](https://github.com/user-attachments/assets/1486420d-a284-4982-aba8-e52ddb1a2335)
+
+<img width="1080" height="1080" alt="1000050227" src="https://github.com/user-attachments/assets/b6b3fa06-e1d3-47ae-b4f6-457d6adae17a" />
