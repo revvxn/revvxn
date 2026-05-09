@@ -1,11 +1,4 @@
-<img width="1810" height="816" alt="1000050317" src="https://github.com/user-attachments/assets/5117f650-dd3b-418c-b300-40c0fc6b254d"/>
-
-
-
-         
-          
-    
-" How do ya like it, buddy? Papa's the best, ain't he? "
+<img width="540" height="298" alt="1000051817" src="https://github.com/user-attachments/assets/99a2ba37-8ff6-4401-ab78-b8580f14ed40" />
 
 
 
