@@ -1,4 +1,5 @@
-<img width="540" height="298" alt="1000051817" src="https://github.com/user-attachments/assets/99a2ba37-8ff6-4401-ab78-b8580f14ed40" />
+<img width="200" height="150" alt="1000051753" src="https://github.com/user-attachments/assets/6014a1f3-0c2e-4da1-a871-2922090aa40e" />
+
 
 
 
@@ -17,3 +18,4 @@ forsaken iwecuf
 
 
 <img width="165" height="155" alt="1000050693" src="https://github.com/user-attachments/assets/02174068-170e-4d9f-a8ec-ae077a2c4b11" />
+
