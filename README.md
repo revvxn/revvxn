@@ -11,8 +11,7 @@ ch/int until i have dni in my name
 
 
 
- i like drawing alot ummmm oh and limbus company and invincible
-im 14 ,, feel free to block 02/21
+ i like drawing alot ummmm oh and limbus company and invincible,, feel free to block 02/21
 
 forsaken iwecuf
 
