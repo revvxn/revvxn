@@ -3,7 +3,7 @@
 
 
 
-,im not really active on pt
+
 you can call me rev or soren idm she/her multishipper + multifandom
           
  please do not copy my skins until gifted 
