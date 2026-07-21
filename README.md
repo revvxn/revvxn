@@ -11,7 +11,6 @@ ch/int until i have dni in my name
 forsaken iwecuf
 
 
-<img width="1170" height="1244" alt="1000056479" src="https://github.com/user-attachments/assets/b9002cc6-a420-4813-adc1-601ed37678c9" />
+<img width="300" height="300" alt="1000056832" src="https://github.com/user-attachments/assets/2edc4d3e-d155-44e3-9328-6dddef359397" />
 
-
-<img width="165" height="155" alt="1000050693" src="https://github.com/user-attachments/assets/02174068-170e-4d9f-a8ec-ae077a2c4b11" />
+by @ruixsh on tiktok. feed me mother.
