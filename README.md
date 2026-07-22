@@ -1,4 +1,4 @@
-<img width="300" height="200" alt="1000056835" src="https://github.com/user-attachments/assets/57f7d7e6-a6d3-4582-8987-f36a4fe4dbdb" />
+<img width="225" height="150" alt="1000056835" src="https://github.com/user-attachments/assets/57f7d7e6-a6d3-4582-8987-f36a4fe4dbdb" />
 
 
 you can call me rev any pronouns are okay multishipper + multifandom
@@ -16,5 +16,5 @@ ch/int until i have dni in my name
 
 by @ruixsh on tiktok. feed me mother.
 
-<img width="200" height="125" alt="1000056834" src="https://github.com/user-attachments/assets/e3349139-8693-4f37-bd2d-ede0a1629dda" />
+<img width="150" height="75" alt="1000056834" src="https://github.com/user-attachments/assets/e3349139-8693-4f37-bd2d-ede0a1629dda" />
 
